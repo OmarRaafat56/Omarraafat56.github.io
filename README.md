@@ -15,4 +15,4 @@ On my site, you’ll find my portfolio, blog posts, and things I’m experimenti
 If you’d like to connect:
 - **Email:** omarraafat2005@gmail.com
 - **LinkedIn:** https://www.linkedin.com/in/omar-raafat-50238b33a/
-- 
+  
